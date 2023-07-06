@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding and developing
 - 🌱 I’m currently learning B.Tech from NIET Gr.Noida
 - 💞️ I’m looking to collaborate on different projects.
-- 📫 How to reach me - <H1>Instagram - chirag.agarwal_33<br>
+- 📫 How to reach me - <H1>Instagram - chirag.io<br>
                        Mail me - chiragagarwal01122@gmail.com
 
 <!---
